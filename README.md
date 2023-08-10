@@ -1,4 +1,4 @@
-# vg-g1 tysp同影视频永久网址：
+# vg-g1 tongyingshipin同影视频永久网址：
 
 https://tongyingshipin.com
 

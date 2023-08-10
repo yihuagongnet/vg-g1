@@ -1,4 +1,4 @@
-# vg-g1 tongyingshipin同影视频永久网址：
+# vg-g1 tongyingshipin同影视频/台灣同影網永久网址：
 
 https://tongyingshipin.com
 
@@ -11,7 +11,7 @@ https://tongyingshipin.com
 
 也可以发邮件索取最新网址:gvzaixian@gmail.com
 ```
-# vg-g1 tysp同影视频最新网址：
+# vg-g1 tysp同影视频/台灣同影網最新网址：
 
 https://tysp.lat
 
